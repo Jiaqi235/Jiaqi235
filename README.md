@@ -77,12 +77,12 @@ Choose your path carefully:
 ### Go straight 3
 
 1. [Go straight](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-2. [Turn left](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
+2. [Turn left](https://magictool.ai/tool/decrypt-text/es/?ln=es)
 3. [Turn right](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
 ### Go straight 4
 
 1. [Go straight](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 2. [Turn left](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
-3. [Turn right](https://magictool.ai/tool/decrypt-text/es/?ln=es)
+3. [Turn right](https://www.youtube.com/watch?v=dQw4w9WgXcQ)
 
